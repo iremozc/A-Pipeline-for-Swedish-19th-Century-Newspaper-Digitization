@@ -1,0 +1,1 @@
+# A-Pipeline-for-Swedish-19th-Century-Newspaper-Digitization
